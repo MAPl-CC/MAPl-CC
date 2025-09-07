@@ -1,7 +1,7 @@
 [![Untitled2057-20250907231721.png](https://i.postimg.cc/WbtN5pqh/Untitled2057-20250907231721.png)](https://postimg.cc/tYQGTj5j)
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neucha&size=25&letterSpacing=2px&duration=1&pause=5000&color=FFFFFF&repeat=false&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4generix%E3%85%A4%E2%82%92%E1%B5%A3%E3%85%A4gene)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neucha&size=25&letterSpacing=2px&duration=1&pause=5000&color=FFFFFF&repeat=false&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4⁘+generix%E3%85%A4%E2%82%92%E1%B5%A3%E3%85%A4gene)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neucha&size=25&letterSpacing=2px&duration=1&pause=5000&color=FFFFFF&repeat=false&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4++++he%E3%85%A4%E3%82%9B++they)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neucha&size=25&letterSpacing=2px&duration=1&pause=5000&color=FFFFFF&repeat=false&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4++++he%E3%85%A4%E3%82%9B++they%E3%85%A4𓂃)](https://git.io/typing-svg)
 <p align="center">
     <img width="200" src="https://i.postimg.cc/9QFndzDn/Untitled2058-20250907232532.png" alt="mapicc">
 </p>
