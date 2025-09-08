@@ -14,3 +14,9 @@
 <p align="center">
     <img width="200" src="https://i.postimg.cc/Y2zRdMBK/IMG-20250907-192841.jpg" alt="mapicc">
 </p>
+<p align="center">
+    <a href="https://glorytowesthelmm.straw.page/">ext</a>
+</p>
+<p align="center">
+    <img width="200" src="https://i.postimg.cc/KYBTBqJn/Untitled2059-20250908203307.png" alt="mapicc">
+</p>
